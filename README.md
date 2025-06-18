@@ -5,6 +5,8 @@ for PT / roblox
 
 you should watch solarballs or mrspherical sometime ( its on youtube )
 
+readme is currently a wip!!! still thinkin about what to add here
+
 <!--
 **tealstarr/tealstarr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
