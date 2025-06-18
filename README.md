@@ -1,6 +1,6 @@
-<<  ⌢  ─  ‧ TRITON / ANY KIN/OC NAMES
+<<  ⌢  ─  ‧ TRITON
 
-i follow people back if they follow me 
+
 
 you should watch solarballs or mrspherical sometime ( its on youtube )
 
