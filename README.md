@@ -7,7 +7,8 @@ you should watch solarballs or mrspherical sometime ( its on youtube )
 
 readme is currently a wip !!! still thinkin about what to add here
 
-![1000003665](https://github.com/user-attachments/assets/007fe488-9a00-4102-9e2d-2c258ec13cea)
+![1000003666](https://github.com/user-attachments/assets/80fa2d0c-2ecb-4b34-a73b-ac9b09cd380e)
+
 
 
 <!--
