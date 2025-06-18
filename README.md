@@ -1,4 +1,8 @@
-hi finishing this soon
+<<  ⌢  ─  ‧ TRITON / ANY KIN/OC NAMES
+
+i follow people back if they follow me 
+
+you should watch solarballs or mrspherical sometime ( its on youtube )
 
 <!--
 **tealstarr/tealstarr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
