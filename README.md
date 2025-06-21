@@ -1,27 +1,14 @@
-for PT / roblox
+you can read this while i finish my straw 
+
+░▒▓▆▅▃▂▁▂▃▅▆▓▒░
+
+𝐡𝐞/𝐢𝐭, 𝐚𝐠𝐞𝐧𝐝𝐞𝐫
+
+𝙮𝙤𝙪 𝙘𝙖𝙣 𝙖𝙡𝙬𝙖𝙮𝙨 𝙛𝙞𝙣𝙙 𝙢𝙚 𝙖𝙩 𝙩𝙝𝙚 𝙨𝙤𝙡𝙖𝙧𝙗𝙖𝙡𝙡𝙨 𝙖𝙧𝙚𝙖 𝙞𝙛 𝙞𝙢 𝙤𝙣𝙡𝙞𝙣𝙚, 𝙛𝙚𝙚𝙡 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙨𝙖𝙮 𝙝𝙞!
+
+𝙢𝙖𝙞𝙣 𝙛𝙖𝙣𝙙𝙤𝙢𝙨 𝙖𝙧𝙚 𝙛𝙤𝙧𝙨𝙖𝙠𝙚𝙣 𝙖𝙣𝙙 𝙨𝙤𝙡𝙖𝙧𝙗𝙖𝙡𝙡𝙨, kinda obvious
 
 
+𝐃𝐍𝐈 :   𝐂𝐎𝐌𝐒𝐇𝐈𝐏𝐏𝐄𝐑𝐒, 𝐃𝐀𝐑𝐊𝐒𝐇𝐈𝐏𝐏𝐄𝐑𝐒, 𝐙𝐎𝐎𝐏𝐇𝐈𝐋𝐄𝐒, 𝐏𝐑𝐎𝐒𝐇𝐈𝐏𝐏𝐄𝐑𝐒, 𝐄𝐓𝐂. 𝐖𝐄𝐈𝐑𝐃 𝐏𝐄𝐎𝐏𝐋𝐄 𝐈𝐍 𝐆𝐄𝐍𝐄𝐑𝐀𝐋. ( 𝐘𝐄𝐒 𝐂𝐄𝐑𝐄𝐒, 𝐘𝐎𝐔 𝐓𝐎𝐎. ) ,,
 
-
-you should watch solarballs or mrspherical sometime ( its on youtube )
-
-readme is currently a wip !!! still thinkin about what to add here
-
-![1000003666](https://github.com/user-attachments/assets/80fa2d0c-2ecb-4b34-a73b-ac9b09cd380e)
-
-
-
-<!--
-**tealstarr/tealstarr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+   🍀 . F𝚒𝚌𝚝𝚔𝚒𝚗 / 𝙸𝚁𝙻
