@@ -13,6 +13,6 @@ you can um read this while i finish my straw
 
 𝐃𝐍𝐈 :   𝐂𝐎𝐌𝐒𝐇𝐈𝐏𝐏𝐄𝐑𝐒, 𝐃𝐀𝐑𝐊𝐒𝐇𝐈𝐏𝐏𝐄𝐑𝐒, 𝐙𝐎𝐎𝐏𝐇𝐈𝐋𝐄𝐒, 𝐏𝐑𝐎𝐒𝐇𝐈𝐏𝐏𝐄𝐑𝐒, 𝐄𝐓𝐂. 𝐖𝐄𝐈𝐑𝐃 𝐏𝐄𝐎𝐏𝐋𝐄 𝐈𝐍 𝐆𝐄𝐍𝐄𝐑𝐀𝐋. ( 𝐘𝐄𝐒 𝐂𝐄𝐑𝐄𝐒, 𝐘𝐎𝐔 𝐓𝐎𝐎. ) ,,
 
- . f𝚒c𝚝𝚔𝚒𝚗 / IRL
- 
-also you shuld watch mrspherical or solarballs sometime they are super gud shows
+i kin the characters chance nd triton the most if you want the rest of my kins you can ask if you want
+
+readme is still a wip (im lazy lmao)
