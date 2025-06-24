@@ -1,6 +1,7 @@
-![1000003666](https://github.com/user-attachments/assets/7533cd2b-86bc-49db-8de1-6ff9eff411c8)
+heres some basic info abt me ill probably edit soon later
 
-୭ ˚ very silly people go follow em >>
+NAMES: triton, chance, vee.. etc. i dont really care, any kin/oc names
 
+he/it  𖤐
 
-@Ganymedeeee @bananabread-l @cH40SSSS
+neptune kins/irls dniuf 
