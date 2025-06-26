@@ -8,5 +8,4 @@ eaeaeaea wipipip
 
 𖤐  𝙣𝙚𝙥𝙩𝙪𝙣𝙚 𝙠𝙞𝙣𝙨/𝙞𝙧𝙡𝙨 𝙙𝙣𝙞𝙪𝙛 
 
-![1000003726](https://github.com/user-attachments/assets/554e4f70-4187-4b2e-b9bd-6d297c851b3f)
 
