@@ -13,7 +13,8 @@
 
 usually at solarballs area
 
-![1000003729](https://github.com/user-attachments/assets/9f256598-3012-400a-a93f-861cc019b8ca)
+![1000003743](https://github.com/user-attachments/assets/042cf3bd-7728-4d43-b886-1cb323ed5a30)
+
 
  𝙉𝘼𝙈𝙀𝙎: 𝙩𝙧𝙞𝙩𝙤𝙣, 𝙘𝙝𝙖𝙣𝙘𝙚, any other kin names are fine too, whatever you prefer 
 
