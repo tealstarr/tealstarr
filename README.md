@@ -1,14 +1,14 @@
 blinkies :] !!!
 
-![1000003879](https://github.com/user-attachments/assets/71c2771a-2119-47f7-9ee6-ab995026943a)
-![1000003880](https://github.com/user-attachments/assets/b81442be-620d-436d-a40a-9ed584713233)
-![1000003882](https://github.com/user-attachments/assets/9cdeff96-1a31-40b9-8465-10b45c5f5e54)
-![1000003884](https://github.com/user-attachments/assets/f9e58411-2270-489f-b2dc-767a926fc731)
-![1000003885](https://github.com/user-attachments/assets/0d7829ce-2a74-45e8-bc53-092760fcf348)
-![1000003886](https://github.com/user-attachments/assets/1ea7bc02-eea4-47fa-8c64-b1522d3d0c29)
-![1000003888](https://github.com/user-attachments/assets/fbf6eb02-fa99-4b27-84c4-928da26f448c)
-![1000003889](https://github.com/user-attachments/assets/96bf5697-d542-4a2a-acb5-c00cb0658586)
+![1000003881](https://github.com/user-attachments/assets/87887c3e-0891-410b-924b-500ceb49ec12)
+![1000003882](https://github.com/user-attachments/assets/201e2bd8-e253-4da6-a941-bba83548e409)
+![1000003889](https://github.com/user-attachments/assets/33fc3998-2aa2-4691-9598-27a8911d9236)
+![1000003888](https://github.com/user-attachments/assets/f89c7fa9-826b-4f15-9957-0de48facc737)
+![1000003887](https://github.com/user-attachments/assets/e3a155c3-63dc-484b-b825-e352569c165f)
+![1000003885](https://github.com/user-attachments/assets/8184e72f-a20c-4b85-b61c-7fb93f74936c)
+![1000003884](https://github.com/user-attachments/assets/5387405e-a77f-43c0-9127-7d327fae5216)
+![1000003879](https://github.com/user-attachments/assets/ad80910c-eb88-4a9f-b984-fa90950edd00)
+![1000003880](https://github.com/user-attachments/assets/e0c59775-6458-45bb-85ac-4c2c719dd176)
 
-𖤐  𝙣𝙚𝙥𝙩𝙪𝙣𝙚 𝙠𝙞𝙣𝙨/𝙞𝙧𝙡𝙨 𝙙𝙣𝙞𝙪f
 
 
